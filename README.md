@@ -1,1 +1,1 @@
-**NEW File
+random code snippets
